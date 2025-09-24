@@ -8,3 +8,4 @@ going to start octra today
 octra is now bugging a little
 after long time
 175 transactions done...
+today gonna  do octra
